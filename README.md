@@ -21,3 +21,36 @@ Feel free to donate to me on roblox user : pigongamer03
 #### Enquires
 
 Feel free to dm me on discord ~Arizenm
+
+
+
+
+
+
+
+
+## Sneak Peeks • Next update
+
+![App Screenshot](https://media.discordapp.net/attachments/1228723930273939617/1231235337171243038/image_17.png?ex=66363843&is=6623c343&hm=ba5628d1ba2073793b2d0cae5474f54df04a71cff4a2796fe69d71f022f3dac1&=&format=webp&quality=lossless&width=549&height=336)
+
+
+
+
+
+
+
+
+
+## Made by Arize:)
+
+Made with 💗 
+## 
+
+Not assosiated with pls donate or Quantaun
+neither endorsed
+## Features
+
+- free
+- Easy to use!
+- Simple and customisable.
+- 
