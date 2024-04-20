@@ -41,6 +41,14 @@ Feel free to dm me on discord ~Arizenm
 
 
 
+
+## Features
+
+- free
+- Easy to use!
+- Simple and customisable.
+
+
 ## Made by Arize:)
 
 Made with 💗 
@@ -48,9 +56,3 @@ Made with 💗
 
 Not assosiated with pls donate or Quantaun
 neither endorsed
-## Features
-
-- free
-- Easy to use!
-- Simple and customisable.
-- 
